@@ -1,2 +1,2 @@
 ### Hi there 👋
-💙 Sou uma apaixonada em jogos e tecnologia que buscar aprender cada dia mais sobre todas as tecnologias digitais. 🕹️
+💙 I am passionate about games and technology who seeks to learn more every day about all digital technologies. 🕹️
